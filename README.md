@@ -2,7 +2,7 @@
 - 👀 **VEIO OLHA OQ PORRA**
 - 🌱 **RAFAO**
 - 💞️ **NAO USEM DROGAS**
-- 📫 **DOSTO DE COME SUA MAE**
+- 📫 **DOSTO DE COME SUA MÃE**
 
 <!---
 rafao017/rafao017 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
